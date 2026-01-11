@@ -1,3 +1,3 @@
-- hi, I’m ds
-- i’m not interested
-- i’m currently learning nothing
+- Siema
+- Jestme jajoperatorem bo lbuie jajka epstina/ekologiczne
+- Milego dnia❤❤
