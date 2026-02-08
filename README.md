@@ -1,3 +1,6 @@
-- Siema
-- Jestme jajoperatorem bo lbuie jajka epstina/ekologiczne
-- Milego dnia❤❤
+- Hej
+- Lubie marchewki ale jak sa slodkie bo te gorzkie to takie trochee
+- Lubie jajka z farm ekologicznych albo innych nwm nie znam sie
+- Nie umiem programowac na normalnym poziomie xdddddddddddd
+- Moje najlepszy projekt to kasyno w pytonie
+- Dziekuje za uwage.
